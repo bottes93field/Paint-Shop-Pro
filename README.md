@@ -229,4 +229,4 @@ Paint Shop Pro is provided as a **full free version** with all features and upda
 Ready to enhance your photos? **Download Paint Shop Pro free today and unleash your creative potential!**
 
 ---
-**Last updated:** 2026-11-12 23:06:04 UTC
+**Last updated:** 2026-11-13 04:41:25 UTC
